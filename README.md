@@ -7,6 +7,6 @@
 - 🤔 I’m looking for help with 
 - 💬 Ask me about Robotics And techiee stuff....
 - 📫 How to reach me: Gmail    -  yuganrobot@gmail.com
-                      Instagram - https://www.instagram.com/_.lost._.illusion._.7._/
+                      Instagram - @_.lost._.illusion._.7._
 - ⚡ Fun fact: Relationship with Gadget......
 
